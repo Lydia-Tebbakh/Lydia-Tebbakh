@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lydia-Tebbakh
+- 👀 I’m interested in Hiring Developers no matter your geography
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me: subscribe on my plateforme Wedey
+- Join me : https://app.wedey.co/a_dashboard 
